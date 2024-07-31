@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Ryandevraj
+- 👋 Hi, I’m @Debraj
 - 👀 I’m interested in music
 - 🌱 I’m currently learning lot of things
 - 💞️ I’m looking to collaborate on new things
